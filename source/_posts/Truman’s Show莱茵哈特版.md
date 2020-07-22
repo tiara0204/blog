@@ -1,5 +1,5 @@
 ---
-title: Truman's Show莱因哈特版
+title: 【银英】Truman's Show莱因哈特版
 tags: ["银河英雄传说", "银英", "莱吉"] 
 categories: ["银英同人"]
 ---
