@@ -3,7 +3,7 @@ title: 【银英】Thousand Years
 tags: ["银河英雄传说", "银英", "罗米", "耽美"] 
 categories: ["银英同人"]
 ---
-__交流请到[lofter](https://tiara0204.lofter.com/)。__
+__交流请到[lofter](https://tiara0204.lofter.com/)。__  
 # 倒映着星光的湖泊依然带着永世不变的安宁。
 
 <font size="3">
