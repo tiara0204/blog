@@ -1,5 +1,5 @@
 ---
-title: 【银英】My long forgotten cloistered sleep
+title: 【银英】【罗严塔尔】My long forgotten cloistered sleep
 tags: ["银河英雄传说", "银英", "罗严塔尔"] 
 categories: ["银英同人"]
 ---

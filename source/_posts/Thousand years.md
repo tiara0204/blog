@@ -1,5 +1,5 @@
 ---
-title: 【银英】Thousand Years
+title: 【银英】【亚菲亚】Thousand Years
 tags: ["银河英雄传说", "银英", "罗米", "耽美"] 
 categories: ["银英同人"]
 ---

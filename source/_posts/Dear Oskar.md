@@ -1,5 +1,5 @@
 ---
-title: 【银英】Dear Oskar
+title: 【银英】【罗严塔尔】Dear Oskar
 tags: ["银河英雄传说", "银英", "罗奥"] 
 categories: ["银英同人"]
 ---
